@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @Tmvh2893 aka #Ty
 - 
+-  also I'm a homosexual 28-year-old single
+-  
 - 👀 I’m interested in outdoor Activities like swimming climbing hiking I don't mind fishing love crab potting
 - 
 - 🌱 I’m currently learning How to manage my mental health slowly but getting there and also learning how to play Fortnite
